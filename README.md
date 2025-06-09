@@ -1,1 +1,0 @@
-# Certipy-Guide
